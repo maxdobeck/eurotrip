@@ -10,8 +10,9 @@ On top of that they do meal service 15 minutes into the flight.  So I woke up fr
 
 All-in-all it went by pretty quick.  Despicable Me 3 really loses its subtletly around the 3rd showing but I can't complain about having nothing to do.
 
-## Interesting Things About Europe 
+## Interesting Things About Europe So Far
 * The trashcan has not been invented yet over here.  Walked around with trash in my pocket for 35 minutes.
 * Everyone thinks my lack of knowledge about their currency is hilarious.  No I don't know which one is a ten pence, I don't know what the hell a pence is.
 * Everyone's dream is to immigrate to California.
 * Trains are dope. 
+* The UK does _not_ use the Euro.  They are on the pound.  Whoops
