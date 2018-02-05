@@ -3,7 +3,7 @@ layout: post
 title: We Walked Alot 
 ---
 
-# More Coffee
+## More Coffee
 A total of 23,000 steps on the first real day in London.  Not only is that well above my average step count of 0 but I'm still tired.  We've kept to our rule of "sun's up, we're up" but god is it hard.  I'm starting to think London has a reputation for being expensive becuase people are constantly stopping in for coffee whenever they can.
 
 Even with the exhaustion it has been fun finding our way through the winding tube sytem.  We were definitely not prepared for the pace of the daily commuters but caught up quickly.  We can now walk briskly and mostly stay out of people's way.  This has so far been the most mentally involved public transit system due to the sheer number of options.  I can't believe getting around a city this big is this easy and I'd love to have a system like this at home.
@@ -44,3 +44,10 @@ Trashcans aren't the only shy structures around, we also have missing water foun
 Grocery stores were a problem because certain businesses have specialized into offering items you'd normally find under one roof.  The local "chemist" or pharmacy contains things like cosmetics, medicine, bathroom supplies, qtips, etc.  But you can't get this at the same shop that gives you food, cooking supplies, shampoo etc.  It was frustrating at first but we only need those specialty items once so all-in-all it isn't a major inconvenience just a learning curve.
 
 ## Ambushing the people opening a breakfast place
+Don't wake up early in London!  I can't speak for the rest of the UK but in London nothing opens before 8am.  The commuter rush hour doesn't even start till 8 and lasts till 9:30.  Being American we assumed we could wake up at any hour and go get breakfast anywhere our legs could carry us.  We only realized how wrong we were as we had to hit 'Next' on our google search results.
+
+The only place that was open around 6am, the earliest of opening times we could find, wasn't actually open!  But we didn't know that when we walked in, or when we ordered, or when they seated us.  It was only after talking to them that they said they were suprised to see us because they were only preparing for the morning and the kitchen didn't work.  After exchanging the general tourist information (where are you from, how long have you been, are you on holiday) they were pleasant and invited us back for a true hot breakfast when they were actually open, at 7am.
+
+7am is the earliest you can get breakfast in this part of London.  Even now, a couple days after this incident we're still shocked.  Not only are major American stores and restaurants open 24 hours but everyone is up and out the door by 8am.  Based on my commute from living in mutliple parts of Northern California I'm willing to guess Americans start their workday 1-2 hours before the English do.
+
+Liz and I aren't even sure if this is a good thing.  So far the service at information desks, ticket stations, coffee shops, and restaurants has been sub-par.  Sub-par is being generous in a few cases.  The workers at the places we've visited has been so bad that neither of us would want to have co-workers like these.  But it is early days and we're going to go outside London soon.  Maybe Londoners are just ornery and rough because the city is full of so much trash.
