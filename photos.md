@@ -9,6 +9,10 @@ permalink: /photos/
 
 [Rotterdam](https://photos.app.goo.gl/f69f7DQpWqGpQ7wK2)
 
+[Arnhem](https://photos.app.goo.gl/k7eCjyuGKAzChZmx1)
+
+[Berlin](https://photos.app.goo.gl/4AOAKxeRrJg2gCYI3)
+
 
 ### Photo Albums
 These are all our photos from the trip so far.
