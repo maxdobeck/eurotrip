@@ -1,6 +1,6 @@
 ---
 layout: post
-title: We Walked Alot 
+title: We Walked A Lot 
 ---
 
 ## More Coffee
