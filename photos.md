@@ -13,6 +13,7 @@ permalink: /photos/
 
 [Berlin](https://photos.app.goo.gl/4AOAKxeRrJg2gCYI3)
 
+[Copenhagen](https://photos.app.goo.gl/vr8W0bilvmmSq7cW2)
 
 ### Photo Albums
 These are all our photos from the trip so far.
